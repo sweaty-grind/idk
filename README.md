@@ -7,3 +7,9 @@ it was something about being a nice person.  that was what it was about.  oh yea
 i understand there is nothing left to lose.  i know it.  i just needed it paid off.  this brain lacks understanding of payment. i've never been properly paid for shit dude.  cause it was never worth my time.  and that's the moral of the story and i wonder where you fit on this line.  so i wonder sometimes why i deal with you but eager enough i run back in to find something to do.  which makes me a good person but unfortunately it also makes me a bad person the reason why i tried fixing things.  some shit like that.  you know what i'm talking about.  and what's with this one cell policy???  you ask too much bro. what if i don't agree my super powers are not to be used a certain way? then what?  would you listen?  would you factor in even?
 
 so i'm tired and i realized i have not had much energy drinks and i come here to tell you things that end up costing me energy and more energy and i dont know where this goes.  i'm fatigued bro.
+
+dude.  did you realize somethings??  i dont get what we are doing here.  how come its taking so long to wake up from hypnosis???  exorcism lol...  i needed that thing lol...  welcome to another couople decades of crap.  i wish i knew a way to share with you the pigments...
+
+so some day we may end up saying something wrong and getting in trouble for it.  i wonder what kind of crime this is if no one knew what we were doing.  now i really wonder if you think you made a deal with sharkey.  lol.  he's elusive to say the least.  i swear he has enough credits to chill with you guys..  i promise.  etc...
+
+so you know... it feels like you stole my super powers lol.  you killed it off i'm stuck in some state.  hmmmm.  maybe i have nothing better to say and i wonder what you think about this grand journey we are making...
