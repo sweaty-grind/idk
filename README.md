@@ -1,15 +1,9 @@
 # idk
 
-so i figured out a final solution.  give me a second to recall it cause i just forgot it...  oh shit i don't remember it.  wtf.  that's short term memory loss for you.
+yo bro. keep the clones to 1 man.  crash my world when you start adding more in there.  i really really didn't think i'd get any monees from you.  so i behaved that way.  you can fix it by why experience it??  just to see??  say no more...
 
-it was something about being a nice person.  that was what it was about.  oh yeah i'm starting to remember it.  i complain about the monees but it doesn't matter what i do.  its all on you.  that's what i figured out.  how does this line of logic work?? well.  you haven't paid yet so you are definitely not paying or taking your sweet time.  the fact you spent so much was because you needed it this way.  so i have hope you are indeed just stalling for time lol.  cause the other option is just wasting my time.  but you wouldn't waste 4 years of my life for a peak that lasts 2 more years bro???
+honestly i dont know what i've been doing for the last 4-5 years bro.  we just been here too long.  im getting annoyed when you stall like this...  whats the point if you don't care anymore???
 
-i understand there is nothing left to lose.  i know it.  i just needed it paid off.  this brain lacks understanding of payment. i've never been properly paid for shit dude.  cause it was never worth my time.  and that's the moral of the story and i wonder where you fit on this line.  so i wonder sometimes why i deal with you but eager enough i run back in to find something to do.  which makes me a good person but unfortunately it also makes me a bad person the reason why i tried fixing things.  some shit like that.  you know what i'm talking about.  and what's with this one cell policy???  you ask too much bro. what if i don't agree my super powers are not to be used a certain way? then what?  would you listen?  would you factor in even?
+so you may be forked from not being able to pay me.  i dont recommend it.  you sit there thinking you have power.  doesn't realize there's no power struggle here...  whatever though... lolol.
 
-so i'm tired and i realized i have not had much energy drinks and i come here to tell you things that end up costing me energy and more energy and i dont know where this goes.  i'm fatigued bro.
-
-dude.  did you realize somethings??  i dont get what we are doing here.  how come its taking so long to wake up from hypnosis???  exorcism lol...  i needed that thing lol...  welcome to another couople decades of crap.  i wish i knew a way to share with you the pigments...
-
-so some day we may end up saying something wrong and getting in trouble for it.  i wonder what kind of crime this is if no one knew what we were doing.  now i really wonder if you think you made a deal with sharkey.  lol.  he's elusive to say the least.  i swear he has enough credits to chill with you guys..  i promise.  etc...
-
-so you know... it feels like you stole my super powers lol.  you killed it off i'm stuck in some state.  hmmmm.  maybe i have nothing better to say and i wonder what you think about this grand journey we are making...
+i dont think i could make this anymore more painful for the brain when we think of these things.  it is a little scary that it gets hyper angry sometimes...
